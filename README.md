@@ -1,1 +1,1 @@
-![](https://64.media.tumblr.com/c4343dc3d304ec88b7c6eec6f61caaa1/2491c7d5126e86d2-f3/s540x810/5f00204567acc3e3ec00174acdf65c0851a67d9d.gifv)
+![]([https://64.media.tumblr.com/c4343dc3d304ec88b7c6eec6f61caaa1/2491c7d5126e86d2-f3/s540x810/5f00204567acc3e3ec00174acdf65c0851a67d9d.gifv](https://media.discordapp.net/attachments/1326064629448835150/1326852993298993192/e07d7962-9cf4-4af1-ad0e-68d9da867730.jpeg?ex=6780efa5&is=677f9e25&hm=5537c5835849199f0938219bb77caddf684224ae2513fa3e1775c9d6c1a323cf&=&format=webp&width=1004&height=1024))
